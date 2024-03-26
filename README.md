@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me on Emelie.Webdev@gmail.com
-- 😄 Pronouns: She, but honestly call me whatever I don't really mind. 
+- 😄 Pronouns: She/her or potato x)
 - ⚡ Fun fact: Dad jokes are not only for dads, and did you know that a starfish doesn't have a brain!! 
 
 <!---
